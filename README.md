@@ -2,8 +2,8 @@
 - 👀 I’m interested in Software Developer & Cyber Security
 - 🌱 I’m currently studying at the Institut Bisnis dan Teknologi Indonesia (INSTIKI)
 - 📫 How to reach me?
-My email: oribaguswibawa@gmail.com
 
+My email: oribaguswibawa@gmail.com
 My Instagram: @bagus.wii
 - ⚡ Fun fact: I like anything
 
